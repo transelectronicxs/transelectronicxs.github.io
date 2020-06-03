@@ -1,2 +1,0 @@
-# Transelectronicxs
-#### 2020
